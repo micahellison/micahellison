@@ -1,1 +1,1 @@
-Full-stack developer trying to make the world a better place, bit by bit.
+Full-stack developer and technology generalist. Working on @jrnl-org once or twice a month.
